@@ -4,4 +4,4 @@
 ![image](image.png)
 
 
-[Linkdin](www.linkedin.com/in/swathipb03)
+[Linkdin](www.linkedin.com/in/swathipb03/)
